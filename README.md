@@ -5,6 +5,7 @@
 - 📫 How to reach me just a massage on wherever @harshit_add_its
 - 😄 Pronouns: Tanoshi-ge Mitr 楽しい友人 
 - ⚡ Fun fact: i don't why I'm interested to learn Japanese language 🤪
+- ⚡ Fun fact: I had purchased 3 books but not read at all 😙
 
 <!---
 JUSTACODEH/Tanoshi-ge is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
